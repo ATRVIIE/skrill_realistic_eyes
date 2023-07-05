@@ -12,4 +12,3 @@ After :
 ![1](https://user-images.githubusercontent.com/119594378/236954431-f6f74db1-4b8d-48f9-bedb-163e56974dd3.png)
 
 
-→ Discord : discord.gg/9jbqhVDVVT 
